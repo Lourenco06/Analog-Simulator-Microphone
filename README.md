@@ -1,0 +1,1 @@
+#Sinal Analógico Microfone
